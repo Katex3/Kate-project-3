@@ -1,1 +1,0 @@
-# Kate-project-3
